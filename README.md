@@ -20,8 +20,7 @@ I spend my time bridging the gap between storytelling and syntax. Whether I'm cr
 ---
 
 ### 🤝 Let's Connect!
-- **Portfolio** [https://sites.google.com/view/
-chetas-bhole]
+- **Portfolio** [https://sites.google.com/view/chetas-bhole]
 - **Books:** [https://www.bribooks.com/author/chetas-bhole]
 - **LinkedIn:** [https://www.linkedin.com/in/chetas-bhole-75623036b/]
 
